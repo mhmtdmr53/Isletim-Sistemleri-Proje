@@ -1,1 +1,2 @@
-# Isletim-Sistemleri-Proje
+# İşletim Sistemleri Proje Ödevi
+Yükleeeennn
